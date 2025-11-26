@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on MR Beast
 - 📫 How to reach me come to shivrampally ekta colony
 - 😄 Pronouns: 🎮
-- ⚡ Fun fact: I am 11 yrs old
+- ⚡ Fun fact: I am 13 yrs old
 
 <!---
 srikar80/srikar80 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
